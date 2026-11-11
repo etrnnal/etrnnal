@@ -23,7 +23,7 @@
 --------
 # sign mi stra :3 
 
-<p align="center"> <a href='https://eternallyred.straw.page' target='_blank'><img src='https://github.com/user-attachments/assets/8deccd79-5795-47ca-8bd8-8dc60a1d1794' alt='blinkies.cafe | make your own blinkies!'></a>
+<p align="center"> <a href='https://eternallyred.straw.page' target='_blank'><img src='<img width="2000" height="2000" alt="Untitled205_20261111173232" src="https://github.com/user-attachments/assets/e82e1faf-7dd6-4e36-b62f-8f875e9e9dc1" />' alt='blinkies.cafe | make your own blinkies!'></a>
 
 
 </details>
