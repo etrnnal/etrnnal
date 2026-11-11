@@ -1,15 +1,15 @@
-<img width="735" height="773" alt="213705" src="https://media1.tenor.com/m/x18vDVAOC94AAAAd/rickorty-rick-x-morty.gif" />
+<img width="735" height="773" alt="213705" src="https://s1.ezgif.com/tmp/ezgif-1b31e591ff55ee70.gif" />
 
 
 # <p align="center"> ₊ ⊹
 
 ----------
 
-<p align="center"> ๑⁠♡ ${\textsf{\color{#FDF76C} 𝑷in }}$ ou ${\textsf{\color{#FFFFF} 𝒔prout ! }}$ <img src="https://64.media.tumblr.com/fa92a73fbf2272f5c05c0ee496dad96d/f840d39dbe1812a8-67/s100x200/992e0e5fe4fc0f9992de48d1200b076689a2bce2.gifv" width="30" height="20">
+<p align="center"> ๑⁠♡ ${\textsf{\color{#FFDEEF} Eternal }}$ ou ${\textsf{\color{#FFFFF} Pin ! }}$ <img src="https://media.tenor.com/h5F7PZhXNisAAAAj/star.gif" width="30" height="30">
 
-<p align="center"><img src="https://64.media.tumblr.com/4b995d8492999af859962cfe776e4f98/f840d39dbe1812a8-0a/s100x200/fd32f33ad5a42ffe9b964ee96cd76da7c89d98c8.gifv" width="20 height="20"> ${\textsf{\color{#FDF76C} 𝑨}}$ utisti ${\textsf{\color{#FFFFF}  𝑻}}$ raumagenic sys </33 
+<p align="center"><img src="https://media.tenor.com/4_OtpblfI6AAAAAj/pixel.gif" width="20 height="20"> ${\textsf{\color{#FFDEEF} 𝑨}}$ utisti ${\textsf{\color{#FFFFF}  𝑻}}$ raumagenic sys </33 
 
-♡ <p align="center"> <img src="https://64.media.tumblr.com/702614e076c7a38ae14f7ece395b9dcc/f840d39dbe1812a8-41/s100x200/364ff6dcae78ce3a300b38f5e8b68dd171a7f1ab.gifv" width="20" heighr="20"> bodily ${\textsf{\color{#FDF76C} 7𝙩𝙚𝙚𝙣 }}$ !! 
+♡ <p align="center"> bodily ${\textsf{\color{#FFDEEF} 7𝙩𝙚𝙚𝙣 }}$ <img src="https://media.tenor.com/97XpxLp4P2YAAAAj/---.gif" width="20" heighr="20">
 
 > <p align="center"> 100+ alters , pls be cautious ^_^ this gh is for us collectvly so any alter cud be using it 
 
@@ -23,7 +23,7 @@
 --------
 # sign mi stra :3 
 
-<p align="center"> <a href='https://eternallyred.straw.page' target='_blank'><img src='<img width="2000" height="2000" alt="Untitled205_20261111173232" src="https://github.com/user-attachments/assets/e82e1faf-7dd6-4e36-b62f-8f875e9e9dc1" />' alt='blinkies.cafe | make your own blinkies!'></a>
+<p align="center"> <a href='https://eternallyred.straw.page' target='_blank'> <img src="https://github.com/user-attachments/assets/dfa8336e-417e-49bc-a79e-7e8e0ad17b71" >
 
 
 </details>
