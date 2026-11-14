@@ -5,6 +5,8 @@
 
 ----------
 
+ ⠀⠀ ⠀ ⠀⠀⠀ ⠀  ![](https://komarev.com/ghpvc/?username=etrrnal&style=block&color=FFDEEF&label=_　cuties_　　&base=3819)
+
 <p align="center"> ๑⁠♡ ${\textsf{\color{#FFDEEF} Eternal }}$ ou ${\textsf{\color{#FFFFF} Pin ! }}$ <img src="https://media.tenor.com/h5F7PZhXNisAAAAj/star.gif" width="30" height="30">
 
 <p align="center"><img src="https://media.tenor.com/4_OtpblfI6AAAAAj/pixel.gif" width="20 height="20"> ${\textsf{\color{#FFDEEF} 𝑨}}$ utisti ${\textsf{\color{#FFFFF}  𝑻}}$ raumagenic sys </33 
